@@ -1,2 +1,2 @@
 # Keur Gabut
-Tapi semoga aja gweh bisa dapet cewe wkwk :v
+Semoga aja gweh bisa dapet cewe wkwk :v
